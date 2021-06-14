@@ -14,6 +14,8 @@ Instructions to this assignment can be found [here](#).
 
 how many points out of 20 do you deserve on this assignment:
 
+20 points. 
 ## Self-Reflection:
-
+This assignment went smoothly nothing to report. 
 ### How long it took me to finish this?
+ About an hour.
